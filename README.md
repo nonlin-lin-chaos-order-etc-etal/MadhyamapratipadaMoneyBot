@@ -1,2 +1,2 @@
 # MadhyamapratipadaMoneyBot
-https://t.me/MadhyamapratipadaMoneyBot
+https://t.me/GoldenMiddleMoneyBot · https://t.me/MadhyamapratipadaMoneyBot
